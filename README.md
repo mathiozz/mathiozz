@@ -1,7 +1,7 @@
-- 👋 Hi, I’m matheus cria 11
+- 👋 Hi, I’m matheus
 - 👀 I’m interested in  dicas de moda 😉
-- 👩‍🏫@angela
-- 📫 How to reach me @eu_pelizer @koki  @pele_021
+- RECEBA CARAI
+- 📫 How to reach me @plzicks
 - parcerias  via instragram 
 <!---
 mathiozz/mathiozz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
